@@ -1,1 +1,0 @@
-GRIT is back
